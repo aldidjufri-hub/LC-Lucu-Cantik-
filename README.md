@@ -1,0 +1,2 @@
+# LC-Lucu-Cantik-
+anjayyy
